@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @NJ120903
 - 👀 I’m interested in Gaming,Coding and Tech stuff
 - 🌱 I’m currently learning Nothing
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me https://www.instagram.com/narayanjoshi143/
 
 <!---
